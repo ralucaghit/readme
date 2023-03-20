@@ -9,4 +9,4 @@ Unii si altele.. :/
 Crezi ca pica Hapa FIS-ul??
 Nu are media 10 la tot, deci inca nu ne lasam de facultate!
 :))))))))))))))))))))))))))))
-Nu mai are la FIS  ca o luat 4,3:((((((
+Nu mai are 10 la tot, ca la FIS o luat 4,3:(((((( Imi pare rau pentru el:)))
